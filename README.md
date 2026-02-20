@@ -1,0 +1,1 @@
+# scriptsql_consultasAvan-adas
